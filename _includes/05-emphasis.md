@@ -1,0 +1,1 @@
+I __*love*__ anominity. The feeling of being unknown to *everyone* is just intriguing. But, really, *__how__* much anonimity can we obtain? With things like hacking, *google*, money, the internet, how can we obtain that anonimity?
